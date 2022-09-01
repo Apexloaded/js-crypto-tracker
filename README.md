@@ -21,3 +21,5 @@ To learn more about us, contact us using the following handle:
 - **[Facebook.com](https://facebook.com/apexloaded) - Facebook**
 - **[Instagram.com](https://instagram.com/officialapexloaded) - Instagram**
 - **[info@apexloaded.com](mailto:info@apexloaded.com) - Email**
+
+Subscribe to our [Youtube](https://www.youtube.com/channel/UCs6rn-keO-4tZ0hWMXGzPvw) channel to get more updates on new projects we will be working on.
